@@ -120,3 +120,4 @@ Whether on Android, PC, or Mac, **Stardew Valley APK** is your go-to for a relax
 > **Download the latest Stardew Valley APK version** now and dive into a high-quality farming adventure!
 
 --- 
+stardew valley 1.6.13 apk - stardew valley 1.6.13 - stardew valley 1.6.11 - stardew valley 1.6.12 apk
